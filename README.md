@@ -9,5 +9,5 @@
 - 💬 Ask me about ... anything  
 - 📫 How to reach me: ... LinkedIn (https://www.linkedin.com/in/javohir-toshmurodov/)
 - 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ... I am a fast typer
+- ⚡ Fun fact: ... fast typer
 -->
